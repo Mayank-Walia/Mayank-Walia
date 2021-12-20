@@ -7,4 +7,3 @@
 - 💬 Ask me about Freelancing Projects
 - 📫 How to reach me: [Mail](mailto:mayankwalia625@gmail.com)
 - ⚡ Fun fact: I am a Mathematics Student.
-- 
